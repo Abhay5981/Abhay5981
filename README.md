@@ -8,7 +8,7 @@
 
 💞️ I’m looking to collaborate on **exciting frontend web projects**
 
-📫 How to reach me: **[Your Email or LinkedIn]**
+📫 How to reach me: **[abhaykum78@gmail.com or www.linkedin.com/in/abhayk5981]**
 
 😄 Pronouns: **He/Him**
 
